@@ -1,4 +1,4 @@
-# Olá :tulip:
+# Hi! :paw_prints:
 
 ## 📈 Stats
 
